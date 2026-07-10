@@ -8,6 +8,6 @@ yo its been like 3 years and im only NOW learning how to do this. unbelievable. 
 ok so like i have no idea how to make this look good like the only web design experience i have is rentry. have this fucked up photo of leo kasper ANYWAY my name is clancy but i have like 900 other names honestly just call me anything you want. im usually on safe 1 at spawn or market but if im somewhere else im with my friends. c+h is always encouraged no matter what my status is its so cute like #aww aawww look at the cute ponies theyre sitting togehter!!!
 
 i have awful taste in just about everything
-uh if you like the dear hunter or manhunt or postal or anything i happen to like interact i am BEGGING. ok image dump goodbye i genuinely cannot bother with trying to figure this out LMFAAOO
+uh if you like the dear hunter or manhunt or postal or anything i happen to like interact i am BEGGING. ok goodbye i genuinely cannot bother trying to figure this out LMFAAOO
 
 <img width="400" height="511" alt="1808" src="https://github.com/user-attachments/assets/059f1b0a-fb70-4d46-840f-85aa38cf1342" />
