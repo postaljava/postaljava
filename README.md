@@ -1,12 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=postaljava&color=000000&label=lame+ponytowner+count&style=flat-square)
 
-clancy he/him 16yo tmasc 
-<img width="250" height="175" alt="2390" src="https://github.com/user-attachments/assets/66305424-16e8-4dc1-bb02-2cec7dab43a7" />
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=&duration=3000&pause=500&color=F7F7F7&true&width=435&lines=her+heart+ceases+it's+rhythm;somewhere+trumpets+decay" alt="the procession by the dear hunter by the way" /></a>
+⠀
+<img width="735" height="561" alt="2398" src="https://github.com/user-attachments/assets/e40fa77b-d3ed-47db-b075-8fb2f7030220" />
 
 ⠀
-
-⠀
-
-just interact man
-<img width="2048" height="1152" alt="1976" src="https://github.com/user-attachments/assets/ef4a19a7-9d5c-4632-af73-8f6d6f14e4ef" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀clancy hehim 16yo
