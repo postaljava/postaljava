@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=postaljava&color=000000&label=lame+ponytowner+count&style=flat-square)
 
-⠀
-<img width="735" height="561" alt="2398" src="https://github.com/user-attachments/assets/e40fa77b-d3ed-47db-b075-8fb2f7030220" />
+
+https://github.com/user-attachments/assets/b5301204-f77f-416f-a2c0-6caea6c38311
 
 ⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀clancy hehim 16yo
