@@ -1,2 +1,2 @@
-![](https://komarev.com/ghpvc/?username=postaljava&color=000000&label=lame+ponytowner+count&style=flat-square)⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀clancy hehim 16yo
+hop the fuck off ponytown and get a job
+![](https://komarev.com/ghpvc/?username=postaljava&color=000000&label=lame+bitches&style=flat-square)
